@@ -1,7 +1,7 @@
 ## Hello Friends!!
 
 Up For Anything :-)
-(C:\Users\o5053\Downloads\ufa.jpeg)
+[Image](C:\Users\o5053\Downloads\ufa.jpeg)
 
 ### Markdown
 
