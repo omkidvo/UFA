@@ -1,9 +1,8 @@
 ## Hello Friends!!
 
 Up For Anything :-)
-![Image](C:\Users\o5053\Downloads\ufa.jpeg)
 
-![alt text](https://goo.gl/images/F7Yxg3)
+![ufa](https://user-images.githubusercontent.com/40515680/41809200-45d1a89e-76e1-11e8-8ea5-94572f5817c9.jpeg)
 
 
 
